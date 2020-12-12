@@ -1,1 +1,1 @@
-# STAT3340-Final-Project-Gtoup41
+# STAT3340-Final-Project-Group41
